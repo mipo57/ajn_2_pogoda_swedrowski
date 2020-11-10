@@ -1,0 +1,1 @@
+# ajn_2_pogoda_swedrowski
